@@ -12,4 +12,4 @@
 
 [크루쉬eeee](https://youtu.be/luIsrP3dXXY)
 
-<https://youtu.be/luIsrP3dXXY>
+![Alt text](/path/to/youtu.be/luIsrP3dXXY.jpg)
