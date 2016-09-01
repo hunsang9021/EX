@@ -12,4 +12,4 @@
 
 [크루쉬eeee](https://youtu.be/luIsrP3dXXY)
 
-[99](http://www.youtube.com/watch?v=jo_B4LTHi3I)
+<https://youtu.be/luIsrP3dXXY>
