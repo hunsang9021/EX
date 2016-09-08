@@ -2,7 +2,7 @@
 
 ## **Mt.BlackRock**
 
-### *League of Ex[lorer*
+### *League of Explorer*
 
 #### One Night in Kharazhan
 
@@ -10,6 +10,6 @@
 
 [카라잔 오페라](https://www.youtube.com/watch?v=dedMP7eda2E)
 
-[크루쉬eeee](https://youtu.be/luIsrP3dXXY)
+[https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fmedia-hearth.cursecdn.com%2Favatars%2F38%2F220%2F194.png](https://youtu.be/luIsrP3dXXY)
 
 
