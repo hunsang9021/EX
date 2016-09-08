@@ -10,6 +10,6 @@
 
 [카라잔 오페라](https://www.youtube.com/watch?v=dedMP7eda2E)
 
-[https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fmedia-hearth.cursecdn.com%2Favatars%2F38%2F220%2F194.png](https://youtu.be/luIsrP3dXXY)
+[http://cfile231.uf.daum.net/image/215D7747531EBB521BFB70](https://youtu.be/luIsrP3dXXY)
 
 
